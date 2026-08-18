@@ -3,4 +3,4 @@
 
 <p align="center"
         
-very abandoned github sorry! check out [@nezoshokii](https://github.com/@nezoshokii) or [@poisonedritual](https://github.com/@poisonedritual)
+very abandoned github sorry! check out [@nezoshokii](https://github.com/nezoshokii) or [@poisonedritual](https://github.com/poisonedritual)
