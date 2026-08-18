@@ -3,4 +3,4 @@
 
 <p align="center"
         
-honestly i might start using this gh again maybe.
+very abandoned github sorry! check out [@nezoshokii](https://github.com/@nezoshokii) or [@poisonedritual](https://github.com/@poisonedritual)
